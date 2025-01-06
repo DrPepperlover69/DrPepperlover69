@@ -1,4 +1,4 @@
-<img align="left" src="https://i.pinimg.com/736x/fa/43/96/fa439675966359e5a350d0f006ad4509.jpg" width="360"> <p align="center"> **Hello, i am nicholas, but you can call me nick ~ !** <br>
+<img align="left" src="https://i.pinimg.com/736x/fd/c6/e7/fdc6e77fa9b6ff1c381700399c84fb9b.jpg" width="360"> <p align="center"> **Hello, i am nicholas, but you can call me nick ~ !** <br>
 <br> He/him <br> mlm <br> <br> normally found at hoyo area . <br> i make nsfw jokes, kys/kms/jump jokes aswell ! </p>
 
 <br>
